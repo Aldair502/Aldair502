@@ -1,2 +1,2 @@
 ### Holo!
-Un repo para subir basura porque google earth lo requiere
+Una cuenta para subir basura y vandalismo que nos piedio el profe en google earth
